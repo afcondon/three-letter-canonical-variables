@@ -1,5 +1,5 @@
 # Tired of foo, bar, baz?
-###Seeking a more artisanal, _curated_ set of canonical variables?
+### Seeking a more artisanal, _curated_ set of canonical variables?
 
 Here you go: **awn bel cep dop erg fub gid hoy ist jud kef lev mim nim obi pyx qat roc suq tej ure vis wis xis yad zek**
 
